@@ -1,4 +1,4 @@
-# 
+# Get the ultimate dexscreener sniper bot with vip dexscreener sniper bot | new-token-detection + proxy-transactions. Featuring new-token-detection and proxy-transactions, it's the
 
 
 
